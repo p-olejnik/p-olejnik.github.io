@@ -1,1 +1,0 @@
-# p-olejnik.github.io
